@@ -4,3 +4,6 @@
  - Email: mabinajoshua@gmail.com
  - GitHub: [joshuamabina](https://github.com/joshuamabina)
 
+#### Name: Musa Kalokola
+ - Place: Dar es Salaam, Tanzania
+
